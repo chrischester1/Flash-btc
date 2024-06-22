@@ -14,7 +14,7 @@ Contact me - To Purchase The Flash Coins Telegram - @chrischester - https://t.me
 
 Want To Know About How Flash USDT Works ? And What Is Flash USDT ?
 
-Flash USDT VS Real USDT - https://youtu.be/98qvX0LP980?si=9v4Zv0udKgcmNyQy
+Flash USDT VS Real USDT - [https://youtu.be/98qvX0LP980?si=9v4Zv0udKgcmNyQy](https://youtu.be/tAQFpOUHrXk?si=KzAUn9KqEgbphxme)
 
 
 
